@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🙋‍♀️ Favoriser l'innovation technologique et le développement professionnel par le partage de connaissances, la collaboration et le mentorat au sein de la communauté #1000TechLeaders
+🙋‍♀️ Favoriser l'innovation technologique et le développement professionnel par le partage de connaissances, la collaboration et le mentorat au sein de la communauté #1000TechLeaders #1kTL
 
 🌈 Contribution guidelines - how can the community get involved?
 
